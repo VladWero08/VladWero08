@@ -16,7 +16,7 @@
 
 # Hi there!👋🏻
 ### A few things about me...
-- 🏫 Computer Science student - 2nd year
+- 🏫 Computer Science student - 3rd year
 - ✈️ Wayfarer soul
 - 🎨 Passionate about drawing, painting, doodling and graffiti
 - 🏐 EX-Volleyball Player
