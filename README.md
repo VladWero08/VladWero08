@@ -6,7 +6,7 @@
 </div>
 
 ### A few things about me...
-- 🏫 MSc Artificial Intelligence student - 1st year
+- 🏫 MSc Artificial Intelligence student - 2nd year
 - ✈️ Attracted to traveling
 - 🎨 Passionate about drawing, painting, doodling and graffiti
 - 🏐 EX-Volleyball Player
