@@ -6,8 +6,8 @@
 </div>
 
 ### A few things about me...
-- 🏫 MSc Artificial Intelligence student - 2nd year
+- 🏫 BSc Computer Science @ Unibuc, MSc Artificial Intelligence @ Unibuc
 - ✈️ Attracted to traveling
 - 🎨 Passionate about drawing, painting, doodling and graffiti
-- 🏐 EX-Volleyball Player
+- 🏐 Volleyball Player
 - 📧 Contact me: vlad_wero@yahoo.com
